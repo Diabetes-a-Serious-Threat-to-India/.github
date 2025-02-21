@@ -1,4 +1,5 @@
 # डायबिटीज: भारत की आबादी के लिए एक गंभीर खतरा (Diabetes: A Serious Threat to India’s Population)
+Additional Information : https://tukaramconsultancy.blogspot.com/
 
 ## क्यों भारत को डायबिटीज की महामारी से निपटने के लिए तुरंत कदम उठाने की जरूरत है?
 
